@@ -14,5 +14,5 @@
 
 3. **Third Member :**
 
-   * Name: Waqar Ali
+   * Name: Waqar Ali (B23F0126AI080)
    * Registration Number: 
